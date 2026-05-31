@@ -33,3 +33,9 @@ The dashboard provides insights into sales performance, profitability, regional 
 * Dashboard Design
 * Excel Reporting
 * Business Intelligence
+
+
+
+
+LINKEDLN LINK:
+https://www.linkedin.com/posts/nandini-badavath-7a50a8362_skillcrafttechnology-excel-dashboard-ugcPost-7466497322101731328-a1SL/?utm_source=social_share_send&utm_medium=member_desktop_web&rcm=ACoAAFoSBG0B4uuZKFHC7-vLp2xSqHZBFnnxDzI
